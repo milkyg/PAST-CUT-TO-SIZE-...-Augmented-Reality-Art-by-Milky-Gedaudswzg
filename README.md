@@ -1,1 +1,0 @@
-# PAST-CUT-TO-SIZE-...-Augmented-Reality-Art-by-Milky-Gedaudswzg
